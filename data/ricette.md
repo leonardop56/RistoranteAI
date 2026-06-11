@@ -6,7 +6,7 @@
 
 **Ingredienti:**
 - 400g spaghetti
-- 200g guanciale
+- 200g pancetta
 - 4 tuorli d'uovo
 - 100g pecorino romano grattugiato
 - Pepe nero q.b.
